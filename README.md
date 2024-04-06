@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZIKVSVKURV
+- 👋 Hi, My name is Telegenov Zhaslan I am 25 years old 
 - 👀 I’m interested in job
 - 🌱 I’m currently learning Phyton
 - 📫 How to reach me Telegram: @aezakmi_kvmv  
